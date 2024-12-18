@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/8d899af0-491a-470f-8679-f41455bfe4a2)
+![]([https://github.com/user-attachments/assets/8d899af0-491a-470f-8679-f41455bfe4a2](https://i.pinimg.com/originals/b6/21/14/b621146f81f5259a42565cca93016034.gif))
 
 >>>Господи помоги
 > 
